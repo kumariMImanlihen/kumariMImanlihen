@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kumariMImanlihen
 - 👀 I’m interested in Data Analytics and Cybersecurity
 - 🌱 I’m currently earning my Master's of Data Analytics
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on 
 - 📫 How to reach me LinkedIn @ Kumari Mason Imanlihen
 - 😄 Pronouns: She / Her
 - ⚡ Fun fact: I enjoy cooking
